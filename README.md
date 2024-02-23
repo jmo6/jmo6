@@ -1,0 +1,4 @@
+- my username is @jmo6 but if you are on this page you kinda know that
+- im interested in some goofy shenanigans, maybe a small amount of tomfoolery
+- my pronouns if you are interested (you arent): He/Him
+- uncomedic
